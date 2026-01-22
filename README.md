@@ -1,23 +1,23 @@
 # 🛍️ Loja de Arquivos Digitais
 
-Bem-vindo(a) à minha loja de arquivos digitais!  
-Aqui você encontra **PDFs, artes digitais e materiais prontos para download**, ideais para uso pessoal ou profissional.
+Bem-vindo(a) à Personaholics sua lojinha de arquivos digitais para artigos de festas como: adesivos, topos de bolo e caixinhas para aniversários!  
+Aqui você encontra **PDFs, arquivos em SGV e diversas artes digitais e materiais prontos para download**, ideais para uso pessoal ou profissional.
 
 ---
 
 ## 📂 Produtos disponíveis
 
-### 📌 Planner Digital
-✔ Organização financeira  
-✔ Planejamento mensal e anual  
-✔ Arquivo em PDF (download imediato)
+### 📌 Topos de bolo para:
+✔ Aniversários 
+✔ Confraternizações 
+✔ Arquivo em PDF, SGV e JPEG (download imediato)
 
 👉 **Comprar:** EM BREVE
 
 ---
 
 ### 🎨 Artes Digitais
-✔ Artes para redes sociais  
+✔ Artes para convites  
 ✔ Alta resolução  
 ✔ Arquivos digitais prontos para uso
 
@@ -39,4 +39,4 @@ Após a confirmação do pagamento, o download é liberado automaticamente.
 
 ## 📧 Contato
 Em caso de dúvidas, entre em contato:
-📩 seuemail@email.com
+📩 personaholics.08@gmail.com ou no Whatsapp: (64) 99959-4927 Instagram: @persona_holics09
