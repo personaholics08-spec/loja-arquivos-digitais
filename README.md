@@ -25,6 +25,15 @@ Aqui você encontra **PDFs, arquivos em SGV e diversas artes digitais e materiai
 
 ---
 
+###  Caixinhas Personalizadas para edição
+✔ Aniversários 
+✔ Batizados  
+✔ Arquivos digitais prontos para uso
+
+👉 **Comprar:** EM BREVE
+
+---
+
 ## 💳 Formas de pagamento
 ✔ Pix  
 ✔ Cartão de crédito  
